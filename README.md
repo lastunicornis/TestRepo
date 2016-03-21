@@ -10,7 +10,7 @@ modified text from github
 
 new from my pc
 
-new direct to master in my pc
+new direct to master in my pc - 2 from net
 
 
 
