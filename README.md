@@ -10,7 +10,7 @@ modified text from github
 
 new from my pc
 
-
+erererererer from internet
 new direct to master in my pc 1 -  2 from net
 
 
